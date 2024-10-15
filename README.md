@@ -1,1 +1,1 @@
-## News summ
+## News summary
